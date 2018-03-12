@@ -6,6 +6,8 @@ by nono montabert
 
 Let's try to put a link to another website : [here](http://www.foodista.com/blog/2018/02/22/gut-health-week-seafood-brown-rice-with-lemongrass-and-cilantro)
 
+![image of a seafood](http://cf.foodista.com/content/fp/evjqd4mw8dwghdu2.jpg)
+
 Is your belly feeling good yet? Today is Day 8 of our Gut Health Series and this week I've featured healing recipes from three of my favorite gut-healing cookbooks (check out our homepage for all of the recipes). This Asian-inspired stir-fry recipe comes from Eat Your Way to a Healthy Gut, the latest cookbook from nutritionist Dale Pinnock, known as The Medicinal Chef. It's nutrient-dense, and gut-soothing with lemongrass and ginger infused brown rice. Plus, it's easy enough to make any night of the week. Toss in a blend of mixed seafood - like salmon, shrimp, mussels, calamari - for a healthy and healing dinner you're sure to love!
 
 Seafood Brown Rice with Lemongrass and Cilantro
